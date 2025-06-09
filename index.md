@@ -1,3 +1,3 @@
 ---
-title: Welcome to my blog!
+title: I rely on Bed-Stuy! Brooklyn Always In It!!!
 ---
